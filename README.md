@@ -1,0 +1,2 @@
+# Business-Opportunities
+http://www.kolkatabizbook.com/  In addition to this, it is worth noting that many data center facilities around the country are now making significant efforts to be 'green' facilities, meaning that they have put in place infrastructures and processes to maximize energy efficiency and reduce their harmful impact on the environment. For companies that are looking for a green solution, there are many options out there.
